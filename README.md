@@ -1,1 +1,1 @@
-# GPowerUQ
+# GPowerUq
